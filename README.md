@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MikeSave
 - 👀 I’m interested in programming 
 - 🌱 I’m still learning basics
-- 📫 You can reach me on my IG:_miso_sporer_
+- 📫 You can reach me on my IG: __miso_sporer__
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love music and play a lot of instruments decently
